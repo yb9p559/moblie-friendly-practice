@@ -1,0 +1,1 @@
+# moblie-friendly-practice
